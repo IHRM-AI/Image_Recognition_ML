@@ -67,7 +67,7 @@
 ---
 
 ## Contact
-Feel free to connect on [LinkedIn]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/ihrm-ishan/))
+Feel free to connect on [LinkedIn](https://www.linkedin.com/in/ihrm-ishan/)
 
 ---
 
